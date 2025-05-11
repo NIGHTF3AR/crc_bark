@@ -1,4 +1,5 @@
 # crc
 
-Don't ask me, I don't know what I'm doing
-[.](https://invalidunit.github.io/crc_bark/)
+Lol who the fuck just like commited and 
+rewrote everything with random shit 
+haha like why 
